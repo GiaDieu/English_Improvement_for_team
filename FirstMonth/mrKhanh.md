@@ -12,11 +12,11 @@
 
 - fun - more fun - the most fun.
 
-- to clear up some confusion by other members...
+To clear up some confusion by other members...
 
 - funny - funnier - the funniest
 
-- "Fun" and "funny" have clearly different usages, despite both being related to entertainment.
+"Fun" and "funny" have clearly different usages, despite both being related to entertainment.
 
 ### Warning basis grammar:
 
