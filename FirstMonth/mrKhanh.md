@@ -25,6 +25,6 @@ To clear up some confusion by other members...
 > couture = Cao tu re
 
 - I'm a gamer not gammer
-- I'm a the best gamer (the most, the best)
+- I'm the best gamer (the most, the best)
 
 - couture = Cao tu re , I am warning you, this mistake is unacceptable, if you repeat this mistake, I will fine you 10,000 VND per character
